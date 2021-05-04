@@ -27,7 +27,7 @@ twitter_username: cemoezden
 github_username:  cemozden
 
 # Build settings
-theme: jekyll-theme-leap-day
+theme: jekyll-theme-tactile
 plugins:
   - jekyll-feed
 
