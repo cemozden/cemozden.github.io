@@ -27,7 +27,7 @@ twitter_username: cemoezden
 github_username:  cemozden
 
 # Build settings
-theme: jekyll-theme-tactile
+theme: minima
 plugins:
   - jekyll-feed
 
