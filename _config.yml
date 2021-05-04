@@ -27,7 +27,7 @@ twitter_username: cemoezden
 github_username:  cemozden
 
 # Build settings
-theme: minima
+theme: jekyll-theme-leap-day
 plugins:
   - jekyll-feed
 
