@@ -25,10 +25,10 @@ Her ne kadar benim gibi bir çok genç eline geçen ilk fırsatta Türkiye'den a
 * Türkiye'deki ailemden ne kadar uzakta olacağım?
 * Ailemi ziyaret edebilme fırsatım ne kadar olabilecek? Onların beni ziyaret edebilme fırsatı olabilecek mi?
 * Ailemden uzun süreler boyunca uzakta yaşabilir miyim?
-* Gideceğim ülke Türkiye'den kültürel olarak ne kadar farklı? Adaptasyonu mu nasıl sağlayacağım?
+* Gideceğim ülke Türkiye'den kültürel olarak ne kadar farklı? Adaptasyonumu nasıl sağlayacağım?
 * Gideceğim ülkenin sosyopolitik, siyasi, ekonomik durumu nedir?
 
-gibi bir çok soru ülkeden ayrılmayı karar vermeden önce insan aklına gelmeye başlıyor. Yukarıda belirttiğim soruların bazıları maalesef gidilicek ülkeye varmadan cevaplanması mümkün olmayan sorular ama gitmeden önce yukarıdaki ve sizin aklınıza gelen bir çok soruyu mümkün olduğu kadar cevaplandırıp kararı vermek daha sağlıklı olacaktır.
+gibi bir çok soru ülkeden ayrılmayı karar vermeden önce insan aklına gelmeye başlıyor. Yukarıda belirttiğim soruların bazıları maalesef gidilecek ülkeye varmadan cevaplanması mümkün olmayan sorular ama gitmeden önce yukarıdaki ve sizin aklınıza gelen bir çok soruyu mümkün olduğu kadar cevaplandırıp kararı vermek daha sağlıklı olacaktır.
 
 Bu sorular arasında en çok belirttiğim kelime dikkatinizi çektiyse ***aile*** oluyor. Bunun sebebi bir çok yurtdışına çalışmaya gelen arkadaşlarımın ailesini özlemesi, onlar olmadan yapamadıklarını farkedip Türkiye'ye hemen geri döndüklerine şahit olmam. Eğer ailenizden uzakta yaşayamayan birisi iseniz yurtdışına aileniz olmadan gitmek veya onları arkada bırakmak iyi bir fikir olmayabilir.
 
@@ -49,9 +49,9 @@ Benim için en büyük avantajların başında ekonomik şartlar geliyor. Özell
 
 Bir diğer konu çevre edinmek ve seyahat serbestliği konusu. Bu konularda keza benim için oldukça önem taşıyan konular ve Schengen üyesi olan Polonya'da sahip olduğum Mavi kart (BlueCard) ile Schengen üyesi tüm ülkelere vizesiz serbest geçiş sağlayabiliyorum. Aynı şekilde dünyanın bir çok yerinden insanlarla tanışma fırsatını yakalayıp en uzakta bulunan ülkelerde bile çevre yapma şansına sahip olabilirsiniz.
 
-Tabiki son olarak dil konusunu değinmeden geçmem olmazdı. Yabancı dil seviyeniz her ne düzeyde olursa olsun pratik yapılmadığı sürece unutulmaya yüz tutan bir konu dil öğrenmek. Yurtdışında yaşamak sizi yabancı dil konuşmaya zorladığından bu konuda yabancı dil seviyenizi çok yukarılara taşıyacağınızdan emin olabilirsiniz.
+Dil konusunu değinmeden geçmem olmazdı. Yabancı dil seviyeniz her ne düzeyde olursa olsun pratik yapılmadığı sürece unutulmaya yüz tutan bir konu dil öğrenmek. Yurtdışında yaşamak sizi yabancı dil konuşmaya zorladığından bu konuda yabancı dil seviyenizi çok yukarılara taşıyacağınızdan emin olabilirsiniz.
 
-İş ortamı konusunda avatanjlardan biriside insanların işlerine profesyonel olarak yaklaşması. İşten "kaytaran" birisine henüz şahit olmadım. (Eminim buna şahit olan insanlar başka yerlede olmuştur :) ) Gördüğüm kadarıyla herkes işe ciddiyetle yaklaşıp kazandığı paranın "hakkını vermeye çalışıyor". Ben burada işe başladığımdan beri bir çok yeni fikirler öğrenme fırsatında bulundum. Keza Türkiye'de bir çok iyi yönetici olduğunu bilmeme rağmen kendi açımdan bakmak gerekirse çalıştığım yöneticilerin en iyileri hep buradaydı.
+Tabiki son olarak iş ortamı konusunda avatanjlardan biriside insanların işlerine profesyonel olarak yaklaşması. İşten "kaytaran" birisine henüz şahit olmadım. (Eminim buna şahit olan insanlar başka yerlede olmuştur :) ) Gördüğüm kadarıyla herkes işe ciddiyetle yaklaşıp kazandığı paranın "hakkını vermeye çalışıyor". Ben burada işe başladığımdan beri bir çok yeni fikirler öğrenme fırsatında bulundum. Keza Türkiye'de bir çok iyi yönetici olduğunu bilmeme rağmen kendi açımdan bakmak gerekirse çalıştığım yöneticilerin en iyileri hep buradaydı.
 
 ## Yurtdışında yaşamanın dezavantajları
 
@@ -74,7 +74,7 @@ Gidilen ülkedeki hayata alışmakta epey zor olabilir. Bu kişiden kişiye ülk
 
 ## Polonya ve benim durumum
 
-Polonya genel olarak IT çalışanları ve büyük firmaların IT merkezleri açmaları açısından cazip bir yer. Özellikle Kraków, Wrocław şehri ile beraber Polonya'nın IT üssü olması ile bilinen ve büyük firmaların dikkatini çeken bir merkez. Bu açıdan kendimde IT sektöründe çalışan birisi olarak genel olarak buradaki durumumdan memnum olduğumu söylebilirim. Fakat Polonya'nında kendine özgü bazı zorlukları olduğu da aşikar. Örnek olarak Polonya'nın resmi dili olan Lehçe'nin ana dili Türkçe olanlar için oldukça zorlayıcı bir dil olduğu aşikar. Keza bazı ırkçı özellikleride barındıran bir ülke Polonya her ne kadar 2. dünya savaşında ırk üzerinden yıkıma uğrayan bir ülke olmasına rağmen. Fakat bu blog yazısının yazıldıgı tarihi baz alarak 2.5 seneyi doldurduğum bu ülkede genel olarak mutlu olduğumu söyleyebilirim.
+Polonya genel olarak IT çalışanları ve büyük firmaların IT merkezleri açmaları açısından cazip bir yer. Özellikle Kraków, Wrocław şehri ile beraber Polonya'nın IT üssü olması ile bilinen ve büyük firmaların dikkatini çeken bir merkez. Bu açıdan kendimde IT sektöründe çalışan birisi olarak genel olarak buradaki durumumdan memnum olduğumu söylebilirim. Fakat Polonya'nında kendine özgü bazı zorlukları olduğu da aşikar. Örnek olarak Polonya'nın resmi dili olan Lehçe'nin ana dili Türkçe olanlar için oldukça zorlayıcı bir dil olduğu aşikar. Keza bazı ırkçı özellikleride barındıran bir ülke Polonya her ne kadar 2. Dünya Savaşında ırk üzerinden yıkıma uğrayan bir ülke olmasına rağmen. Fakat bu blog yazısının yazıldıgı tarihi baz alarak 2.5 seneyi doldurduğum bu ülkede genel olarak mutlu olduğumu söyleyebilirim.
 
 ### Son sözler
 
