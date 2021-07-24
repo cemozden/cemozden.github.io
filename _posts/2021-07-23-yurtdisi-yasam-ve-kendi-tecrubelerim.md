@@ -74,7 +74,7 @@ Gidilen ülkedeki hayata alışmakta epey zor olabilir. Bu kişiden kişiye ülk
 
 ## Polonya ve benim durumum
 
-Polonya genel olarak IT çalışanları ve büyük firmaların IT merkezleri açmaları açısından cazip bir yer. Özellikle Kraków, Wrocław şehri ile beraber Polonya'nın IT üssü olması ile bilinen ve büyük firmaların dikkatini çeken bir merkez. Bu açıdan kendimde IT sektöründe çalışan birisi olarak genel olarak buradaki durumumdan memnum olduğumu söylebilirim. Fakat Polonya'nında kendine özgü bazı zorlukları olduğu da aşikar. Örnek olarak Polonya'nın resmi dili olan Lehçe'nin ana dili Türkçe olanlar için oldukça zorlayıcı bir dil olduğu aşikar. Keza bazı ırkçı özellikleride barındıran bir ülke Polonya her ne kadar 2. Dünya Savaşında ırk üzerinden yıkıma uğrayan bir ülke olmasına rağmen. Fakat bu blog yazısının yazıldıgı tarihi baz alarak 2.5 seneyi doldurduğum bu ülkede genel olarak mutlu olduğumu söyleyebilirim.
+Polonya genel olarak IT çalışanları ve büyük firmaların IT merkezleri açmaları açısından cazip bir yer. Özellikle Kraków, Wrocław şehri ile beraber Polonya'nın IT üssü olması ile bilinen ve büyük firmaların dikkatini çeken bir merkez. Bu açıdan kendimde IT sektöründe çalışan birisi olarak genel olarak buradaki durumumdan memnum olduğumu söylebilirim. Fakat Polonya'nında kendine özgü bazı zorlukları olduğu da aşikar. Örnek olarak Polonya'nın resmi dili olan Lehçe'nin ana dili Türkçe olanlar için oldukça zorlayıcı bir dil olduğu aşikar. Keza bazı ırkçı özellikleride barındıran bir ülke Polonya her ne kadar 2. Dünya Savaşı'nda ırk üzerinden yıkıma uğrayan bir ülke olmasına rağmen. Fakat bu blog yazısının yazıldıgı tarihi baz alarak 2.5 seneyi doldurduğum bu ülkede genel olarak mutlu olduğumu söyleyebilirim.
 
 ### Son sözler
 
